@@ -1,1 +1,1 @@
-# 61NAR10.github.io
+[distributed denial-of-service](https://ddosleep.net)
